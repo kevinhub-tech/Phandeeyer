@@ -13,7 +13,7 @@ Their organization is willing to invest funds to those whose idea are feasible t
 
 In each category, they will select three winners and give prize to those winners fairly accordingly to their position. There were loads of judges and sponsership from successful companies that were ready to make those young people dream come true. 
 
-###### The challenge was to create a business idea regarding to the category of your choice within 9 days and then pitch it to the panels of judeges.
+###### The challenge was to create a business idea regarding to the category of your choice within 9 days and then pitch it to the panels of judges.
 
 ### Project Detail
 There were four options and bunch of classmates from Lithan, including me, has decided to take woman safety as an challenge to come up with an technological business idea. Within 9-days limit, It was sure that we wouldn't be able to create an prototype for the product. And as being a beginner to this business world, the project was slow paced and yet well-managed with guidelines. 
