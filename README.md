@@ -19,3 +19,5 @@ There were four options and bunch of classmates from Lithan, including me, has d
 The main concept of this whole competition is about presenting the product well differently so that you would be selected. Therefore, the team was determined to learn about the business concept and discussed about an idea to bring it to reality. And as being a leader of the group, I have to take on the part of presenting an idea to the judges with moral supports from my teammates. And here is the pitching presentation file.
 
 <a href= "https://docs.google.com/presentation/d/1xTG4irKteLonhC5KzVnycg3RQP9e-mTWIuTN4it7EOk/edit?usp=sharing"> Source File</a>
+
+### Project Accomplishment
