@@ -23,3 +23,5 @@ The main concept of this whole competition is about presenting the product well 
 <a href= "https://docs.google.com/presentation/d/1xTG4irKteLonhC5KzVnycg3RQP9e-mTWIuTN4it7EOk/edit?usp=sharing"> Source File</a>
 
 ### Project Accomplishment
+
+There were two pitches for the competition and the first pitch was represented as an entry to present in the main stage and the second pitch was the final pitch where only top 10 nominated team are able to perform. And after the first pitch was completed, our team has beem <b> selected </b> to present in the top 10 finalist. And at the final day, we were ranked at 6 and got eliminated from the competition. Even we were eliminated, we left the competition with variety of knowledge, given from different people, about the concepts of business and learnt how to facilitate cooperation in a team.
